@@ -1,6 +1,6 @@
 ## Part 1 Tasks
 
-•	**READ:** Apess, Cherokee Memorials, Black Hawk
+•	**READ:** [Apess](https://pressbooks.online.ucf.edu/aml3031/chapter/wiliam-apes/), [Cherokee Memorials](https://pressbooks.online.ucf.edu/aml3031/chapter/the-cherokee-memorials/), [Black Hawk](https://pressbooks.online.ucf.edu/aml3031/chapter/black-hawk-autobiography/)
 
 •	**SIGN UP** for a [Hypothesis](https://web.hypothes.is/) account; we will use this feature at various times in the semester, so please use a name that will be easy for me to identify for grading purposes. 
 
