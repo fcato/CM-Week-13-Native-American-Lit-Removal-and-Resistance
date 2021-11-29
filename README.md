@@ -1,4 +1,4 @@
-# Critical-Making-week-13
+# Critical-Making-Week13_Pedagogy
 
 this is mt critical making project
 
